@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @yukiwang92
-- 👀 I’m interested in traveling.
+- 👀 I’m passionate about tech.
 - 🌱 I’m currently learning coding.
 - 📫 How to reach me: moonyw0730@gmail.com
 
